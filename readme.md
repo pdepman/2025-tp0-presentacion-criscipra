@@ -1,5 +1,6 @@
 
-![WhatsApp Image 2025-03-29 at 00 24 33](https://github.com/user-attachments/assets/533dac23-5e4b-4f87-a3ce-d40cc70785e7)
+![WhatsApp Image 2025-03-29 at 00 27 32](https://github.com/user-attachments/assets/344f81dd-85c1-446e-9d6e-8e0ab21456c0)
+
 
 buenas soy cristian cipra, legajo: 176.125-0
 
